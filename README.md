@@ -8,7 +8,7 @@ Hi there 👋 I'm Serena! 👩‍💻
 
 🔭 I maintain a [growth mindset](https://en.wikipedia.org/wiki/Mindset#Fixed_and_growth_mindset) and [positive attitude](https://en.wikipedia.org/wiki/Positive_mental_attitude) in everything that I do and hope to gain a range of experiences in the years to come.
 
-⚡ Fun fact: I have 2 little cute kittens🐱🐱
+⚡ Fun fact: I have 2 cute little kittens🐱🐱
 
 📫 How to reach me: serenapang4@gmail.com
 
